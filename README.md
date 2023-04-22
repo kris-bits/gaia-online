@@ -1,5 +1,5 @@
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/2YLmhVx/3c1c410023060d1-flip.png" alt="3c1c410023060d1-flip" border="0"></a>
-# gaia-online
+# Gaia Online Legacy Archive
 
 I first discovered Gaia Online. It was 2012, and I was only 8 years old. I had just started playing Poptropica and was obsessed with the online gaming world. That's when I stumbled upon Gaia Online, and little did I know, it would change my life forever.
 
